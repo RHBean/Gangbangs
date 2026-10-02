@@ -1,2 +1,2 @@
-# CoT_Gangbangs
+# Gangbangs
 Gangbang mod for Course of Temptation
